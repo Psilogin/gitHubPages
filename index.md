@@ -1,5 +1,5 @@
 ---
-title: Welcome to my blog
+title: Welcome to the blog
 ---
 ## My journey form-and-to
 
