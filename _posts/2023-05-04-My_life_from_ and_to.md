@@ -1,5 +1,5 @@
 ---
-title: Education_Downfall
+title: Education-Downfall
 date: 2023-05-04
 ---
 ## Education
