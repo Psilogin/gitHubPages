@@ -1,5 +1,5 @@
 ---
-title: SUFFf in HEAD
+title: About ME
 ---
 
   I'm a Mechanical Engineering Graduate and i've worked in the field of CAD for 3 years.
