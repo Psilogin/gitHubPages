@@ -4,7 +4,7 @@ title: SUFFf in HEAD
 
   I'm a Mechanical Engineering Graduate and i've worked in the field of CAD for 3 years.
 During these 3 years i gave utmost to the work but, the pay grade is much low compared to the peers of my age, who are working in the field of Information Technology.
-I am happy despite the what my friends make compared to me and I Love what I am doing.
+I am happy despite what I make compared to my friends and I Love what I am doing......?
 
   I am eldest son of a below middle class father, who worked his whole life for the better life. I had a goal that i should learn in IIT but, i have to continue my job for my brothers education.
 Some may say, 'one can learn anything, anywhere, anytime if he or she has the zeal', but it is a corporate world where there are millions of gradutes coming out every year and to keep your job you have work as the one above likes. I've worked 14 hours a day 9 to 11 every day for 2 years which made me distant from dream of becoming an IITian.
