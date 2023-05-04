@@ -1,5 +1,5 @@
 ---
-title: My_life_from_ and_to
+title: Education_Downfall
 date: 2023-05-04
 ---
 ## Education
